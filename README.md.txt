@@ -1,1 +1,0 @@
-Excelente curso, estou aprendendo muito!!
